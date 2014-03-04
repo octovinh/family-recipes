@@ -4,11 +4,12 @@
 * Marsala Wine
 * Porcini Mushrooms
 * Butter
-* Butter
-* Butter
 * Heavy whipping cream
+* Onion
 
 ## Instructions
+* Suatee onion
+* Stir in garlic
 
 ## Special Notes
 
