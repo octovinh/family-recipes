@@ -1,5 +1,5 @@
 #My File
 
-## Ingridients
+## Ingredients
 
 ## Special Notes
