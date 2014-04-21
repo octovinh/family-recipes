@@ -23,10 +23,10 @@
 
 ##Directions
 
-*Place the lamb, turmeric, black pepper, cinnamon, ginger, cayenne, butter, celery, onion, and cilantro into a large soup pot over a low heat. Stir frequently for 5 minutes. Pour tomatoes (reserve juice) into the mixture and let simmer for 15 minutes.
+* Place the lamb, turmeric, black pepper, cinnamon, ginger, cayenne, butter, celery, onion, and cilantro into a large soup pot over a low heat. Stir frequently for 5 minutes. Pour tomatoes (reserve juice) into the mixture and let simmer for 15 minutes.
 
-*Pour tomato juice, 7 cups water, and the lentils into the pot. Bring the mixture to a boil, then reduce the heat to simmer. Let soup simmer, covered, for 2 hours.
+* Pour tomato juice, 7 cups water, and the lentils into the pot. Bring the mixture to a boil, then reduce the heat to simmer. Let soup simmer, covered, for 2 hours.
 
-*About 10 minutes before serving turn the heat to medium-high, place chickpeas and noodles into the soup, let cook about 10 minutes (until noodles are al dente). Stir in lemon and eggs, let eggs cook 1 minute.
+* About 10 minutes before serving turn the heat to medium-high, place chickpeas and noodles into the soup, let cook about 10 minutes (until noodles are al dente). Stir in lemon and eggs, let eggs cook 1 minute.
 
 Enjoy the soup!!!
