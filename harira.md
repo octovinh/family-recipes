@@ -1,0 +1,32 @@
+#Harira
+"This is the soup that Moroccans traditionally use to break the fast every night of Ramadan. Season with salt, pepper, mint leaves and cinnamon to taste."
+
+## Ingredients  
+* 1 pound cubed lamb meat
+* 1 teaspoon ground turmeric
+* 1 1/2 teaspoons ground black pepper
+* 1 teaspoon ground cinnamon
+* 1/4 teaspoon ground ginger
+* 1/4 teaspoon ground cayenne pepper
+* 2 tablespoons margarine
+* 3/4 cup chopped celery
+* 1 onion, chopped
+* 1 red onion, chopped
+* 1/2 cup chopped fresh cilantro
+* 1 (29 ounce) can diced tomatoes
+* 7 cups water
+* 3/4 cup green lentils
+* 1 (15 ounce) can garbanzo beans, drained
+* 4 ounces vermicelli pasta
+* 2 eggs, beaten
+* 1 lemon, juiced
+
+##Directions
+
+*Place the lamb, turmeric, black pepper, cinnamon, ginger, cayenne, butter, celery, onion, and cilantro into a large soup pot over a low heat. Stir frequently for 5 minutes. Pour tomatoes (reserve juice) into the mixture and let simmer for 15 minutes.
+
+*Pour tomato juice, 7 cups water, and the lentils into the pot. Bring the mixture to a boil, then reduce the heat to simmer. Let soup simmer, covered, for 2 hours.
+
+*About 10 minutes before serving turn the heat to medium-high, place chickpeas and noodles into the soup, let cook about 10 minutes (until noodles are al dente). Stir in lemon and eggs, let eggs cook 1 minute.
+
+Enjoy the soup!!!
